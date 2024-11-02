@@ -50,5 +50,5 @@ I believe that collaboration, curiosity, and a growth mindset are key drivers of
 
 ### 📫 Get in Touch
 - **Email**: [dpdharnish76@gmail.com](mailto:dpdharnish76@gmail.com)
-- **LinkedIn**: [[linkedin.com/in/dharnishdp](https://www.linkedin.com/in/dharnish-dp-97a79727a/)](#) *(Add your LinkedIn URL here)*
+- **LinkedIn**: [linkedin.com/in/dharnishdp](https://www.linkedin.com/in/dharnish-dp-97a79727a/)
 - **Location**: Bengaluru, India
